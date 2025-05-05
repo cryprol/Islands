@@ -1,4 +1,4 @@
-Main Functions | Nekohub
+Main Functions | Islands.God
 
 Reworked By | clixcks
 
